@@ -1,4 +1,4 @@
-#  
+#  Experience all star tower defense like never before with automatic all star tower defense Script, the #1 Script. Includes infinite resources and
 
 
 
